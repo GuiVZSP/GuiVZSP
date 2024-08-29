@@ -1,5 +1,6 @@
-## Welcome! 🇧🇷/🇺🇸
-## ✝️ God loves you ✝️
+## 🇧🇷 / 🇺🇸 / 🇪🇸
+## Bem-Vindo / Welcome / Bienvenido
+## ✝️ Deus te ama ✝️
 
 Interesant fact:
 
